@@ -1,4 +1,4 @@
-
+Experience escape waves for lucky blocks like never before with escape waves for lucky blocks Script best, the #1 Script. Includes instant win and
 
 
 
